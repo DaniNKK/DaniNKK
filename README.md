@@ -7,7 +7,6 @@
 - Minha comida favorita é bolo de limão *recheado*
 - Eu amo animes e mangás de terror, mas os de comédia também têm meu coração, meu favorito atualmente é "Bibliomania"
 - Meu estilo de jogo favorito é rpg (de preferência de mundo aberto)
+- Uma curiosidade: Eu tenho muitas curiosidades :D
 - Por fim, eu adoro desenhar, e o estilo de música de que gosto é bem variado, menos gospel...
   <img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/865a0aab-acb5-4f44-a91d-7353c37bd636" />
-
--->
