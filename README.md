@@ -10,3 +10,4 @@
 - Uma curiosidade: Eu tenho muitas curiosidades :D
 - Por fim, eu adoro desenhar, e o estilo de música de que gosto é bem variado, menos gospel...
   ![Uploading image.png…]()
+https://tenor.com/d9PnEm7Dq9D.gif
