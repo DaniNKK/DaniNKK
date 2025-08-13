@@ -9,3 +9,5 @@
 - Meu estilo de jogo favorito é rpg (de preferência de mundo aberto)
 - Uma curiosidade: Eu tenho muitas curiosidades :D
 - Por fim, eu adoro desenhar, e o estilo de música de que gosto é bem variado, menos gospel...
+![Uploading image.png…]()
+https://media.tenor.com/Qb-JxTS4BfkAAAAj/jiaoqiu-honkai-star-rail.gif
